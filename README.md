@@ -1,1 +1,1 @@
-# racetoacure.github.io
+Race to a Cure
